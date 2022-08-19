@@ -3,9 +3,8 @@
 ##
 - 👋 Oii, eu sou a gabriele berebet da silva;
 -  Eu gosto de conversar,passear,assistir,etc...
--  Eu namoro,e pretendo me casar com meu namorado;
 - Eu estudo no colegio civico militar Marechal Rondon;
-- O meu instagram é @gabi.berbetv_
+- O meu instagram é @gabi.berbet_
 - Eu moro em Campo Mourão,PR;
 - eu tenho amigas incriveis,são elas: Pâmela,Ludmylla,Flávia,Emanuelly;
 - Meu pai se chama: Gilson e minha mãe Gisele, Eu amo eles;
